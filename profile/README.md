@@ -1,4 +1,4 @@
-## Hi there 👋 We are whosbug team
+## Hi there 👋 We are Team Whosbug
 
 <!--
 
